@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @Gracediya
 - 👀 I’m interested in Everything nice
-- 🌱 I’m currently learning Android development
-- 💞️ I’m looking to collaborate on ..slide into my dm we'll find out 
+- 🌱 I’m currently learning Android development.
+- Rn i'm transitioning to design 
+- 💞️ I’m looking to collaborate on everything i can design and app related....slide into my dm we'll find out 🤞
 - 📫 How to reach me oyediya98@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: the sky is blue
